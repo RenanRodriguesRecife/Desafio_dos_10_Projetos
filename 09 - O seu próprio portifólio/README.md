@@ -1,0 +1,1 @@
+Abusar e de resursos visuais UX para tornar o portifólio mais atrativo
